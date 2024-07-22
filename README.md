@@ -2,4 +2,4 @@
 
 <code style="color : magenta">ABOUT ME</code>
 
-I'm a minor and I live in Florida. 
+I'm a minor and I live in Florida. I speak spanish and english (though my spanish is a bit choppy lol) 
