@@ -4,7 +4,7 @@
 
 I'm a minor and I live in Florida. I speak spanish and english (though my spanish is a bit choppy lol) I LOVE listening to music. S3RL and diskowarp are my favorite music artists ^_^
 I AM NOT INTROVERTED!! I just avoid talking to people on ponytown because most players are just..awkward. I draw and read in my free time. If im comfy with you i tend to talk alot!!
-c+h is always available unless i have dnd or dni in my name
+c+h is always available unless i have dnd or dni in my name. Im mostly at bakery or p! area but sometimes i hang out with friends.
 
 ![tumblr_1f990153573df1cfb7c1dff996d8ca2c_c73c67b1_540](https://github.com/user-attachments/assets/42f44e6f-d771-471c-8788-90af72438432)
 
